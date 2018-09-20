@@ -50,6 +50,8 @@ First, educate yourself before walking into spaces for more learning.
 
 [My Husband’s Unconscious Racism Nearly Destroyed Our Marriage](https://theestablishment.co/my-husbands-unconscious-racism-nearly-destroyed-our-marriage-6eaeec301161#.ny0hzebl3)
 
-[7 Things to Remember If You’re a White Person Dating a Person of Colorhttp://everydayfeminism.com/2015/08/white-person-dating-poc/](http://everydayfeminism.com/2014/10/talk-race-white-boyfriend/)
+[7 Things to Remember If You’re a White Person Dating a Person of Color](http://everydayfeminism.com/2015/08/white-person-dating-poc/]
 
-[https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/](https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/)
+[How to Talk About Race with Your White Boyfriend](http://everydayfeminism.com/2014/10/talk-race-white-boyfriend/)
+
+[Your white boyfriend is not a unicorn](https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/)
