@@ -13,11 +13,11 @@ First, educate yourself before walking into spaces for more learning.
 
 [Why white People Shouldn’t Impose Their Feelings Into Conversations on Race](http://everydayfeminism.com/2017/01/white-feelings-racial-conversations/)
 
-[Stop Your White Fragility – It’s Racial Violence and Here’s Why](https://everydayfeminism.com/2016/01/white-fragility-is-violence/)
+[Stop Your white Fragility – It’s Racial Violence and Here’s Why](https://everydayfeminism.com/2016/01/white-fragility-is-violence/)
 
 [Befriending Becky: On The Imperative Of Intersectional Solidarity](https://www.huffingtonpost.com/entry/befriending-becky-on-the-imperative-of-intersectional_us_58a339efe4b080bf74f04114)
 
-[4 Ways White People Can Process Their Emotions Without Bringing the White Tears](http://everydayfeminism.com/2016/02/white-people-emotions-tears/)
+[4 Ways white People Can Process Their Emotions Without Bringing the White Tears](http://everydayfeminism.com/2016/02/white-people-emotions-tears/)
 
 
 # How to be an Ally 
@@ -50,8 +50,8 @@ First, educate yourself before walking into spaces for more learning.
 
 [My Husband’s Unconscious Racism Nearly Destroyed Our Marriage](https://theestablishment.co/my-husbands-unconscious-racism-nearly-destroyed-our-marriage-6eaeec301161#.ny0hzebl3)
 
-[7 Things to Remember If You’re a White Person Dating a Person of Color](http://everydayfeminism.com/2015/08/white-person-dating-poc/]
+[7 Things to Remember If You’re a white Person Dating a Person of Color](http://everydayfeminism.com/2015/08/white-person-dating-poc/)
 
-[How to Talk About Race with Your White Boyfriend](http://everydayfeminism.com/2014/10/talk-race-white-boyfriend/)
+[How to Talk About Race with Your white Boyfriend](http://everydayfeminism.com/2014/10/talk-race-white-boyfriend/)
 
 [Your white boyfriend is not a unicorn](https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/)
