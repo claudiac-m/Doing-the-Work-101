@@ -1,36 +1,55 @@
-# ProductManagement
-Product Resources for those in (and out) Tech
+# What does doing the work mean?
 
-# Product Roadmapping 
-
-# User Research 
+First, educate yourself before walking into spaces for more learning.
 
 
-# User Feedback
+# Start Here
 
-# Managing Internal Stakeholders 
+[Tangible ways for white people to combat white supremacy](https://docs.google.com/document/d/1NiiFVMZ08LY2a9CF4pPqqoFLsBm7WDB8KePrund5ZW0/edit)
 
-<a href="https://medium.com/walmartlabs/use-this-three-letter-word-to-help-manage-expectations-at-scale-54c0643a29e4"> Use this three letter word to help manage expectations </a>
+# What is white fragility?
 
-# Product "Sense"
+[white privilege explained](http://everydayfeminism.com/2014/09/white-privilege-explained/)
 
-<a href="https://medium.com/@jackiebo/five-exercises-to-practice-product-sense-57b9104ef8da"> 5 Exercises to Practice Product Sense </a>
+[Why white People Shouldn’t Impose Their Feelings Into Conversations on Race](http://everydayfeminism.com/2017/01/white-feelings-racial-conversations/)
 
-<a href="https://danielelizalde.com/what-it-takes-to-be-a-great-product-leader-the-four-pillars/"> 4 
-Pillars of being a Great Product Leader </a>
+[Stop Your White Fragility – It’s Racial Violence and Here’s Why](https://everydayfeminism.com/2016/01/white-fragility-is-violence/)
 
+[Befriending Becky: On The Imperative Of Intersectional Solidarity](https://www.huffingtonpost.com/entry/befriending-becky-on-the-imperative-of-intersectional_us_58a339efe4b080bf74f04114)
 
-# Sharing What You Know 
-
-<a href="https://thinkgrowth.org/how-to-write-about-your-work-652441747f41"> How to write about work </a>
-
-# Principles of Communication
+[4 Ways White People Can Process Their Emotions Without Bringing the White Tears](http://everydayfeminism.com/2016/02/white-people-emotions-tears/)
 
 
-<a href="https://medium.com/lessons-from-mckinsey/the-pyramid-principle-f0885dd3c5c7"> McKinsey's Pyramid Principle </a>
+# How to be an Ally 
 
-# PMs throughout their Careers
+[I Need An Accomplice, Not An Ally - Dr. Jon Paul](http://efniks.com/the-deep-dive-features/2017/9/6/i-need-an-accomplice-not-an-ally)
 
-<a href="https://medium.com/pminsider/product-manager-skills-by-seniority-level-a-deep-breakdown-cd0690f76d10"> Breaking Down Product Manager Skills by Seniority </a>
+[Accomplices Not Allies: Abolishing The Ally Industrial Complex](http://www.indigenousaction.org/accomplices-not-allies-abolishing-the-ally-industrial-complex/)
 
 
+[Is Your Allyship Proactive? How to Be an Ally in Training](http://everydayfeminism.com/2017/02/allyship-is-proactive/)
+
+
+[Why Your ‘Not All Men’ Argument Is Just Sexist Hypocrisy](http://everydayfeminism.com/2017/01/not-all-men-just-enough-of-them/)
+
+[Against Patriarchy: 20 Tools for Men to Further Feminist Revolution](http://everydayfeminism.com/2014/05/against-patriarchy/)
+
+
+
+# Food and Cultural Appropriation 
+
+[The Difference Between Cultural Exchange and Cultural Appropriation](http://everydayfeminism.com/2013/09/cultural-exchange-and-cultural-appropriation/)
+
+[The Feminist Guide to Being a Foodie Without Being Culturally Appropriative](http://everydayfeminism.com/2015/11/foodie-without-appropriation/)
+
+[5 Things You Don’t Realize When You Defend Cultural Appropriation](http://everydayfeminism.com/2016/05/defending-cultural-appropriation/)
+
+[7 Ways of ‘Honoring’ Other Cultures That Are Really Just Cultural Appropriation](http://everydayfeminism.com/2016/04/honoring-culture-appropriation/)
+
+# But what if I'm a white Person dating a IBPOC 
+
+[My Husband’s Unconscious Racism Nearly Destroyed Our Marriage](https://theestablishment.co/my-husbands-unconscious-racism-nearly-destroyed-our-marriage-6eaeec301161#.ny0hzebl3)
+
+[7 Things to Remember If You’re a White Person Dating a Person of Colorhttp://everydayfeminism.com/2015/08/white-person-dating-poc/](http://everydayfeminism.com/2014/10/talk-race-white-boyfriend/)
+
+[https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/](https://www.vsnotebook.com/social-issues/your-white-boyfriend-is-not-a-unicorn/)
